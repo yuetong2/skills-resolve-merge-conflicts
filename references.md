@@ -1,3 +1,1 @@
-# References
-
-* octocat 1 😈
+CONFLIKTTT ALERET PLEASE RESOLVE
